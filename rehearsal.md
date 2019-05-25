@@ -1,0 +1,18 @@
+# Saturday, June 1, 2019
+# 4-6 pm
+
+### Please join us for a rehearsal dinner honoring Clay and Lindsey.
+
+
+
+
+
+
+
+Please contact Kim with questions [214-545-8200](tel:214-545-8200)
+
+985 Justice Grade B<br>
+Hagerman, ID 83332<br>
+https://goo.gl/maps/b2L7jPCGUUXA7PuGA
+
+<iframe src="https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d2925.72381133965!2d-114.89280938452856!3d42.836447579157785!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x54ac623afd03fbf3%3A0x8663052f9b731042!2sBillingsley+Creek+Cabin!5e0!3m2!1sen!2sus!4v1558820066542!5m2!1sen!2sus" width="600" height="450" frameborder="0" style="border:0" allowfullscreen></iframe>
